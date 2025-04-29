@@ -1,2 +1,2 @@
-# KVA_2025_Nikola_Kremic_Andrija_Rakonjac
+# KVA_2025_Nadja_Vukovic_Andjela_Stanojlovic
  
